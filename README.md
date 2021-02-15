@@ -1,4 +1,4 @@
-# freedesignresources
+Free Design Resources
 
 30+ Free Design Reource Links
 
